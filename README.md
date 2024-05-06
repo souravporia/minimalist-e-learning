@@ -1,1 +1,0 @@
-# minimalist-e-learning
